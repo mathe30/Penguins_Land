@@ -8,3 +8,9 @@ You can [Join us](https://t.me/joinchat/AAAAAFHhzZN7-LtiiwDp3g ) If you **_like_
 
 - The group is offtopic , **anyone** is welcome anyway 
 
+- You will find the rules and the links when you will click the [Joining link](https://t.me/joinchat/AAAAAFHhzZN7-LtiiwDp3g )
+
+- Any rules breaking migh end up a ban 
+
+- Have Fun 
+

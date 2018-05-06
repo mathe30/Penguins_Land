@@ -1,8 +1,9 @@
-## Welcome to GitHub Pages
+## Welcome to Penguins' land net
 
-You can use the [editor on GitHub](https://github.com/mathe30/gitopage/edit/master/index.md) to maintain and preview the content for your website in Markdown files.
+You can [Join us](https://t.me/joinchat/AAAAAFHhzZN7-LtiiwDp3g ) if you like linux / unix-like or programming 
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
+Its telegram technical network generally 
+The group is offtopic , anyone is welcome anyway 
 
 ### Markdown
 
